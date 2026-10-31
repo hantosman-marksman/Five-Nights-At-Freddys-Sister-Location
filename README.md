@@ -215,4 +215,4 @@ Five Nights at Freddy's: Sister Location is available as a complete free version
 Don't miss out on the spine-chilling thrills of Five Nights at Freddy's: Sister Location. Download now and face your fears!
 
 ---
-**Last updated:** 2026-10-30 20:24:03 UTC
+**Last updated:** 2026-10-31 00:22:29 UTC
